@@ -1,1 +1,1 @@
-Nombre grado y grupo
+Nombre Grado y grupo
