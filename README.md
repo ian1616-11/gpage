@@ -1,1 +1,1 @@
-Ian Giovanni Ayuso Acosta 2BMPr
+Nombre Grado y grupo
